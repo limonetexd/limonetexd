@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AvZproPablo444
+- 👋 Hi, I’m @limonetexd
 - 👀 I’m interested on computers(especially hardware)
 - 🌱 I’m currently learning about technology in youtube (normal videos)
 - 💞️ I’m looking to collaborate with spanish people (i'm from Spain, im a kid:)
