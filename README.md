@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @limonetexd
 - 👀 I’m interested on computers 
-- 🌱 I’m indirectly learning about technology in YouTube
-- 💞️ I’m looking to collaborate with spanish people (I'm from Spain)
+- 🌱 I’m learning about technology
+- 💞️ I’m looking to collaborate with people
 - 📫 How to reach me ...
 
 <!---
